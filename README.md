@@ -7,11 +7,52 @@
 1）<b>[智连云](https://sub.xinzhilian.co/register?code=X5rH4Wlk)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
-👉 [https://bit.ly/47oYLBG](https://sub.xinzhilian.co/register?code=X5rH4Wlk)
+👉 (https://sub.xinzhilian.co/register?code=X5rH4Wlk)
 
 
 2）<b>[随心飞](https://vip.suixinfei.co/#/auth/signup;referral=zUMgOcj4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;优质中转广移沪移线路高质 不限速，SS协议大机场，节点全1倍率，包括：港，澳门，台，日，美国，英国，新加坡，韩国，印度尼西亚，老挝，缅甸，越南，泰国，柬埔寨，菲律宾等。解锁Netflix，DIsney+，chatgpt等流媒体。有“不限时流量包套餐”可供选择。用多少算多少直至用完。月付7元100g。注册即可免费试用。</p>
 
-👉 [https://bit.ly/3Wv309S](https://vip.suixinfei.co/#/auth/signup;referral=zUMgOcj4)
+👉 (https://vip.suixinfei.co/#/auth/signup;referral=zUMgOcj4)
 
+**************************************************  特  殊  介  绍  区  *******************************************************
+
+分享一些我用过，且觉得好用的东西，不能保证100%可用，因为不是我亲自运营，仅作参考，有需要可以了解一下，没需要可以忽略：
+
+<b>[TG群组搜索机器人](https://t.me/soso)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;想搜一些有意思的电报群，又没有地方找，可以使用此机器人。</p>
+
+👉 https://t.me/soso
+
+<b>[PokePay](https://app.pokepay.cc/pages/passport/invitation?r=156443)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pokepay全球多币种国际支付U卡，零月租，零管理费，ChatGPT、Midjourney、亚马逊、eBay等多场景使用，kyc简单，信息随便填。无需人脸识别，无需上传照片。支持绑定支付宝进行线上消费。卡种有虚拟卡（Visa & Master）：即开即用，多场景丝滑体验。也有实物卡（Visa）：刷卡、ATM取现、绑定支付，大额消费都行。在线USDT充值，轻松解决海外支付难题。7*24小时，全球客服。随时支持。</p>
+
+👉 https://bit.ly/4eeHm1k
+
+**************************************************  特  殊  介  绍  区  *******************************************************
+
+******************************************************************************************************************************************************************************
+
+分享一些可以很实用的网站，助力遨游海外：
+
+1）临时邮箱收验证码：
+
+https://temp-mail.org
+
+2）临时手机号，收验证码：
+
+https://www.materialtools.com/
+
+https://sms-activate.org/cn
+
+3）直接粘贴网址下载YouTube视频和字幕，可自己选清晰度和格式：
+
+https://addyoutube.com/
+
+4）小霸王游戏在线玩，童年的回忆：
+
+https://www.yikm.net/
+
+******************************************************************************************************************************************************************************
+
+😊 最后，如果觉得这篇推荐对你有所帮助，那么不妨点一下右上角的 star ⭐️，这将让我更有动力保持更新。💚 感谢你能看到此处 💚。
