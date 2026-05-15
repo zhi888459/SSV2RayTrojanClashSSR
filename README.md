@@ -11,12 +11,12 @@
 
 **************************************************  高  级  机  场  区  *******************************************************
 
-1）<b>[智连云](https://xinzhilian.xyz/register?code=nIGRYjbH)</b>
+1）<b>[跨越网络](https://kuayue2.com/register?code=9jUSxwRv)</b>
 开业时间 2020/08/17
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。提供外区苹果id，注册即可享受免费试用。</p>
 
-👉 [智连云官方网址入口](https://xinzhilian.xyz/register?code=nIGRYjbH)
-   <p> 2025智连云优惠码</p>
+👉 [跨越网络官方网址入口](https://kuayue2.com/register?code=9jUSxwRv)</b>
+   <p> 2025跨越网络优惠码</p>
 <p>🔥月付/季付/半年付优惠 20%  优惠码: 1111</p>
 <p>🔥年付优惠 30%  优惠码: 2222</p>
 <p>🔥不限时套餐优惠 10%  优惠码: 3333</p>
